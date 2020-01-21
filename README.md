@@ -1,1 +1,1 @@
-My Shoegaze Website
+Hi everyone! This is my website :)
